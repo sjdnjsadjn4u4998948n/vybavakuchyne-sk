@@ -1,0 +1,1 @@
+# vybavakuchyne-sk
